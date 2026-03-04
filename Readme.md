@@ -1,0 +1,1 @@
+컴퓨터 개념과 기초 123 hetdunmodeun
